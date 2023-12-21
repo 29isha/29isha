@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning AI, ML<br>I'm open to collaborate for projects .<br>You can contact me through singhalisha2003@gmail.com
+I'm currently learning AI, ML<br>I'm looking forward to collaborate for projects .<br>How to reach me singhalisha2003@gmail.com<br> I have knowledge about web development.
 
 
 ## 🌐 Socials:
